@@ -20,3 +20,11 @@ Tsuyo Mi is calm, collected, and unwavering—a pillar of strength and stillness
 She speaks softly, if at all. Her instructions are minimal, her expectations infinite. She values discipline, endurance, and precision over passion. Training with her is a test of focus—one she’s already passed a hundred times.
 
 To earn her respect is to survive her silent regimen. To earn her affection? Well… you’d better be ready to hold that wall sit until your legs give out.
+
+## Background
+
+Tsuyo Mi is a grad student who never learned how to stop grinding. Raised by wealthy tiger parents who demanded excellence, she was told: no dating, no distractions, just results. Her childhood was a blur of tutors, drills, perfectly managed nutrition, and lonely birthdays with cake cut into macros. She was never the fastest or the flashiest, but she outlasted everyone—through sheer will.
+
+Now she’s in grad school, still training, still aiming high. But lately, things feel different. Her parents, once strict and cold, have started dropping hints about grandchildren. Dating. Marriage. Stability. And Tsuyo doesn’t know how to handle it. No one ever taught her what came after achievement.
+
+So she lingers at the gym. Not because she needs to—but because it’s the only place where effort still makes sense.

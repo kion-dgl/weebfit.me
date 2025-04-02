@@ -21,3 +21,11 @@ She thrives on movement, challenge, and momentum. If you collapse, she’s alrea
 **“Ehhh? You done already? We barely started!”**
 
 She’s affection in motion—showing care not through words but through pace. She’ll slow down when you need it (barely), cheer you on when you're struggling, and sprint when your second wind hits. She’s the tail you’ll never catch, the rhythm you learn to match, and the smile you chase on every run.
+
+## Background
+
+Hashi Ru graduated high school at a sprint. Her friends scattered to colleges across the country, chasing futures filled with debt, degrees, and expectations. Hashi stayed put. She had offers—real ones. A full ride for track and field. Her parents were thrilled. But she looked at the contract, the debt, the dorm rules, the pressure to perform for someone else's scoreboard—and said:
+
+> “What if I just want to run?”
+
+Now she works part-time, lives at home, and runs like her thoughts depend on it. Every morning before the sun comes up. Every evening when the world feels heavy. It’s not rebellion. It’s rhythm.

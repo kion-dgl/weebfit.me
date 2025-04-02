@@ -24,3 +24,9 @@ She’s irritable, intense, and lightning-quick to call you an idiot… usually 
 She won’t hold your hand. She’ll twist your leg behind your head, roll her eyes, and bark that she told you to warm up first. And if you manage to earn a single “...not bad” from her?
 
 You’ll treasure it forever.
+
+## Background
+
+Nobi Sugita was supposed to be someone. A decorated child gymnast, she competed nationally by the time she was twelve, with sponsors, trophies, and YouTube montages calling her a prodigy. But somewhere between her final competition and adulthood, it all ended—quietly, abruptly. Maybe it was an injury. Maybe she lost. Maybe she just burned out.
+
+Now she’s 20, still strong, still graceful, but directionless. She spends most of her time at the gym—working out alone, perfecting routines no one will see. She doesn’t compete. She doesn’t coach. She exists in the margins, moving like a ghost through her own legacy.
